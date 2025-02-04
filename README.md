@@ -1,6 +1,6 @@
 My names Cole Brito (he/him) and I am currently a student in the Algonquin College Computer Engineering - Computing Science Course 
 
-Im very interested in Cyber Secerurity and Software Desgin
+Im very interested in Cyber Security and Software Desgin
 
 You can reach me via
 Personal Email - colebritoel@gmail.com
