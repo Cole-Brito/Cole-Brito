@@ -1,4 +1,4 @@
-My names Cole Brito (he/him) and I am currently a Graduate of the Algonquin College Computer Engineering - Computing Science Course 
+My names Cole Brito (he/him) and I am a Graduate of the Algonquin College Computer Engineering - Computing Science Course 
 
 Im very interested in Cyber Security and Software Desgin
 
